@@ -1,4 +1,4 @@
-### Olá! Eu sou Rodrigo Mora! ✋
+### Olá! Eu sou Rodrigo! ✋
 
 Para maiores informações acesse meu Linkedin:
 
